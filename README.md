@@ -1,0 +1,1 @@
+# project1_so.Galuh-sistem-manajement-file-pribadi
